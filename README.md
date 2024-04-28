@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with **any batch file code issue**
 
-- 📫 How to reach me **on discord: add xelesk**
+- 📫 How to reach me **on discord: @xelesk**
 
 - ⚡ Fun fact **I think I am really good at my job lol!**
 
