@@ -12,7 +12,7 @@
 - ⚡ Fun fact **I think I am really good at my job lol!**
 
 <h3 align="left">Connect with me:</h3>
-<p align="left">
+<p align="left"> DISCORD: xelesk
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
