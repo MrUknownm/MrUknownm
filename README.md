@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **more about batch**
 
-- 🤝 I’m looking for help with **any batch issue**
+- 🤝 I’m looking for help with **any batch file code issue**
 
 - 📫 How to reach me **on discord: add xelesk**
 
